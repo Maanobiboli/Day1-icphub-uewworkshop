@@ -1,1 +1,4 @@
-# Day1-icphub-uewworkshop
+Name: DOBROH MAANO STAFFORD 
+Index Number:5251570551
+Phone Number:0557719250
+Account Name: DOBROH MAANO STAFFORD 
